@@ -19,4 +19,6 @@
 
 ###Решение 2
 ![2](https://github.com/znak72/13-02/blob/main/photo_2024-02-12%2010.30.48.jpeg)
+
+
 ![3](https://github.com/znak72/13-02/blob/main/photo_2024-02-12%2010.30.50.jpeg)
