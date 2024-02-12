@@ -9,6 +9,7 @@
 
 ###Решение 1
 
+![1](https://github.com/znak72/13-02/blob/main/photo_2024-02-12%2010.30.42.jpeg)
 
 ### Задание 2
 
